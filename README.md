@@ -1,0 +1,72 @@
+# VΔLZ – Beyond the Frame
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+今だ 掴め この手で
+We ever dream up (whoa)
+Don't miss out!
+One more step (whoa)
+We've been waiting for this time
+その手を取り合って
+力の限り進み続けた
+軽々ハードル乗り越えてく trial
+辿り着く先にあるはずの triumph
+Open the gate
+Don't be afraid
+消えること無い青い炎
+To the next stage
+ぶつかる壁
+今までの僕より
+Step up to the higher
+Nobody knows
+Overcome all future
+熱い衝動
+呼び起こせ本能
+身体中に走る lightning (hey, hey)
+解き放て impulse
+僕ら無限大の
+可能性があるから
+立ち上がり 今 decided 叫んだ (hey, hey)
+We ever dream up (whoa)
+Don't miss out!
+One more step (whoa)
+高まる期待を越えるべく
+Fight it out
+Beyond the frame
+To get to the place
+And no pain, no gain
+A feel deep inside
+溢れる感情
+想いは制御不能
+その心 燃やせ burning (hey, hey)
+巻き起こせ impact
+まだ夢や希望
+捨てるはずがないだろう?
+振り返り また believe in 誓った (hey)
+We ever dream up
+何度も update (update)
+Try and (try and)
+どんな未来が待ち受けてる?
+(Stop and stare?)
+今じゃ one way (one way)
+Take aim (take aim)
+どこまでも進め 突き抜けろ
+Story of my life
+閉じた瞼に焼き付いている
+思い出は僕らの
+進んで来た証だろう?
+湧き上がる細胞
+脈を打つ心臓
+立ち向かって 掴む勝利
+力合わせ bring out
+熱い衝動
+呼び起こせ本能
+身体中に走る lightning (hey, hey)
+解き放て impulse
+僕ら無限大の
+可能性があるから
+立ち上がり 今 decided 叫んだ (hey)
+振り返り また believe in 誓った
+僕らは we ever dream up (whoa, whoa)
+```
